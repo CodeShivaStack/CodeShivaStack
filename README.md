@@ -14,7 +14,7 @@ I enjoy exploring new technologies and solving complex problems through code �
 <br>
 💬 Ask me about coding best practices, tech trends, or my latest projects.<br>
 <br>
-📫 How to reach me: If you need urgent help, dial 911—otherwise, just email me at [Gmail](https://mail.google.com/mail/u/0/?fs=1&to=shivaraddirm@gmail.com&su=Question%20About%20Your%20GitHub%20Profile&body=Hi%20Shiva%2C%0A%0AI%20came%20across%20your%20GitHub%20profile%20and%20I%27m%20interested%20in%20learning%20more%20about%20your%20projects.%20Could%20you%20please%20provide%20more%20information%20or%20let%20me%20know%20if%20there%27s%20a%20good%20time%20to%20discuss%3F%0A%0AThank%20you%21&tf=cm
+📫 How to reach me: If you need urgent help, dial 911—otherwise, just email me at [Gmail](https://mail.google.com/mail/u/0/?fs=1&to=shivaraddi232@gmail.com&su=Question%20About%20Your%20GitHub%20Profile&body=Hi%20Shiva%2C%0A%0AI%20came%20across%20your%20GitHub%20profile%20and%20I%27m%20interested%20in%20learning%20more%20about%20your%20projects.%20Could%20you%20please%20provide%20more%20information%20or%20let%20me%20know%20if%20there%27s%20a%20good%20time%20to%20discuss%3F%0A%0AThank%20you%21&tf=cm
 ) or connect on [LinkedIn](https://in.linkedin.com/in/shivaraddi). I might be a bit slower than a 911 operator, but I’ll get back to you!
 <br>
 😄 Pronouns: He/Him
