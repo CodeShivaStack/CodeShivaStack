@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Hi there! I’m Shivaraddi R. M. 👋, a Computer Science graduate 🎓 with a passion for coding 💻 and tech innovation 🚀. I enjoy exploring new technologies and solving complex problems through code 🧩. Feel free to check out my projects and connect with me! 🤝
+I’m Shiva 👋, a Computer Science graduate 🎓 with a passion for coding 💻 and tech innovation 🚀. I enjoy exploring new technologies and solving complex problems through code 🧩. Feel free to check out my projects and connect with me! 🤝
 
 🔭 I’m currently working on building innovative projects in AI and machine learning.
 🌱 I’m currently learning about advanced data science techniques and cloud computing.
